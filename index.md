@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome
 
-I'm glad you are here. I plan to talk about ...
+Hello. Sorry, this is just a boring tutorial site. Nothing to see here. Go away.
