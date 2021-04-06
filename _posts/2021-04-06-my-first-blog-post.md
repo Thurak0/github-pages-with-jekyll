@@ -1,0 +1,1 @@
+I hate blogs. Seriously.
